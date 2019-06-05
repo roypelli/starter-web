@@ -13,3 +13,6 @@ dfsfasdgasdgasgaga
 
 
 ##How to Contribute
+
+##Copyright
+fwefqwefqtgreqgergqegqegqe

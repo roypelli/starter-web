@@ -18,4 +18,4 @@ dfsfasdgasdgasgaga
 FAFAdgDGGDGGD
 
 ##Copyright
-fwefqwefqtgreqgergqegqegqe
+fwefqwefqtgreqgergqegqegqe All rigth 
